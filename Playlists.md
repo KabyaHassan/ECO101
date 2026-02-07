@@ -1,4 +1,4 @@
-## FRRN – Class Recordings Playlist
+## BUX +Class Recordings Playlist
 
 🎥 [Watch all class recordings (YouTube Playlist)](https://www.youtube.com/playlist?list=PLOUm6fJiwrYEjFJMPLSl_40iznevPKI-x)
 
