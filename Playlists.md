@@ -1,5 +1,5 @@
-## Class recordings + BUX 
+## Class Recordings Playlist + BUX
 
-
-https://www.youtube.com/watch?v=https://youtube.com/playlist?list=PLOUm6fJiwrYEjFJMPLSl_40iznevPKI-x&si=uhGKAigrtqQFlgOe
+🎥 YouTube Playlist:
+https://www.youtube.com/playlist?list=https://youtube.com/playlist?list=PLOUm6fJiwrYEjFJMPLSl_40iznevPKI-x&si=uhGKAigrtqQFlgOe
 
